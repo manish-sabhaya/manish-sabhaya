@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on: Exciting projects involving mobile app development, website design, and creating impactful user interfaces. Open to partnerships with startups, SMEs, and entrepreneurs.
 
-📫 How to reach me: Connect with me on LinkedIn or email me at manish.stw19@gmail.com.
+📫 How to reach me: Connect with me on LinkedIn or email me at connect.manishsabhaya@gmail.com.
 
 😄 Pronouns: He/Him
 
