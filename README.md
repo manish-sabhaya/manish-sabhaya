@@ -10,8 +10,6 @@
 
 😄 Pronouns: He/Him
 
-⚡ Fun fact: I can transform a simple idea into a full-fledged mobile app prototype faster than you can finish a cup of coffee ☕!
-
 
 <!---
 manish-sabhaya/manish-sabhaya is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
